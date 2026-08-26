@@ -1,6 +1,6 @@
 # arun sabaratnam
 
-→ software engineering
+→ software engineering  
 → university of ottawa
 
 <p>
