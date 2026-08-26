@@ -4,11 +4,9 @@
 
 <br>
 
-→ software engineering
+<b> → software engineering 
 
-<br>
-
-→ university of ottawa
+<b> → university of ottawa
 
 <br><br>
 
